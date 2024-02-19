@@ -1,4 +1,0 @@
-# RetoProgramacio
-
-
-HOLAAAAa
